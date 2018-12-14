@@ -1,1 +1,1 @@
-# spiritfightrsarts.github.io
+# spiritfightr.github.io
